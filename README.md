@@ -1,0 +1,1 @@
+# scanom_privacy_policy
